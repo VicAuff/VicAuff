@@ -28,9 +28,9 @@ Mais si un projet intéressant se présente à moi qui me permet de mettre en pr
 💎 Vous avez une idée qui requiert un développeur web créatif ? <br />
 🤝 Je serais ravi de discuter avec vous et de vous aider à le concrétiser.
 
-🐇
-
 Contactez-moi pour échanger sur vos besoins
+
+🐇
 
 victor.a.freelance@gmail.com 🌐 <br />
 ou 
