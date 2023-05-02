@@ -25,8 +25,8 @@ Je me consacre principalement au développement de mes propres projets.
 
 Mais si un projet intéressant se présente à moi qui me permet de mettre en pratique mes compétences et d'apprendre de nouvelles choses, je peux me laisser tenter par le défi !
 
-💎 Vous avez une idée qui requiert un développeur web créatif ? <br />
-🤝 Je serais ravi de discuter avec vous et de vous aider à le concrétiser.
+Vous avez une idée qui requiert un développeur web créatif ? <br />
+Je serais ravi de discuter avec vous et de vous aider à le concrétiser.
 
 Contactez-moi pour échanger sur vos besoins
 
