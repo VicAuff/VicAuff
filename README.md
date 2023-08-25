@@ -17,21 +17,43 @@
 <br />
 <br />
 
-### Salut, moi c'est Victor.
+### 🟩 L'Évangile selon St Shopify • Missionnaire du 'Done For You'
+<br />
 
-Le monde du code m'a toujours fasciné et je suis convaincu que la technologie a un potentiel immense pour rendre notre vie meilleure.
+"Done For You" selon St Shopify, c'est quoi... ?
 
-Je me consacre principalement au développement de mes propres projets.
+Je prêche la bonne parole du e-commerce et convertis vos idées en miracles numériques sur Shopify.
 
-Mais si un projet intéressant se présente à moi qui me permet de mettre en pratique mes compétences et d'apprendre de nouvelles choses, je peux me laisser tenter par le défi !
+Sites vitrines, landing pages, chapelles mono-produit ou cathédrales multi-produits, je suis votre apôtre dévoué.
 
-Vous avez une idée qui requiert un développeur web créatif ? <br />
-Je serais ravi de discuter avec vous et de vous aider à le concrétiser.
+Mon évangile couvre tout :
+De la genèse de votre projet à l'apocalypse des bugs, en passant par les miracles du design et la révélation du code.
 
-Contactez-moi pour échanger sur vos besoins
+Besoin d'un miracle spécifique pour votre boutique Shopify ?
 
-🐇
+Avec mes saintes écritures de programmation, je réalise des prodiges sur mesure pour votre sanctuaire numérique.
 
+Ma mission céleste ? 🎯
+
+Vous délivrer une boutique Shopify bénie, illuminée par le SEO, en harmonie avec vos aspirations divines.
+
+Je répands les saintes écritures techniques pour que vous puissiez prêcher votre commerce. ⏰
+
+Prêt à recevoir la révélation Shopify ?
+
+Contactez-moi,
+
+victor.a.freelance@gmail.com
+
+<br />
+🎁 Première consultation offerte :
+
+Cliquez sur le lien en haut de mon profil LinkedIn pour recevoir votre bénédiction. ✨️
+
+<br />
+Bien à vous, 
+<br />Votre humble serviteur ! <br />
+<br />
 victor.a.freelance@gmail.com 🌐 <br />
 ou 
 [LINKEDIN](https://www.linkedin.com/in/xvx/)
