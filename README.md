@@ -17,7 +17,8 @@
 <br />
 <br />
 
-victor.a.freelance@gmail.com 🌐 <br />
+victor.a@tech-everywhere.fr 🌐 <br />
+[tech-everywhere.fr](https://www.tech-everywhere.fr) <br />
 ou 
 [LINKEDIN](https://www.linkedin.com/in/xvx/)
 <br />
